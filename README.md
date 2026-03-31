@@ -1,2 +1,2 @@
-# thuyha.github.io
+# thuythanhha.github.io
 Final-year Supply Chain Management and Operations student at Ho Chi Minh City University of Technology (HCMUT). A highly adaptable and accountable individual with an insatiable curiosity for industry advancements. Proven analytical foundation in sustainable transportation and global logistics frameworks. Seeking a challenging role in Logistics Operations, Planning, or Customer Service within a multinational environment to leverage a fast-learning mindset and drive operational excellence.
